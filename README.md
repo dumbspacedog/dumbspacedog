@@ -3,7 +3,7 @@
 🎓 Currently working on my Bachelor's in Cybersecurity / Information Assurance. \
 👩‍💻 A nerd of technology while also being an hobbyist in development. \
 🐾 Long-time enthusiast of animals and furries! \
-🏳️‍⚧️ Transgender non-binary! _[they/them]_ \
+🏳️‍⚧️ Transgender non-binary! _[they/them]_
 
 I've worked on a TON of projects in the past -- mainly small "mom & pop" ones -- but every blue moon shall I appear to work on a project widely known.. :eyes:
 
